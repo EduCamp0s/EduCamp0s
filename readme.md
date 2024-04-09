@@ -3,6 +3,8 @@
 
 🎓 Estudante da Reprograma
 
+🤞 Vamos conversar 🤞
+
 💻 Todos os meus projetos estão disponíveis no GitHub [EduCamp0s](https://github.com/EduCamp0s)
 
 ## Habilidades:
